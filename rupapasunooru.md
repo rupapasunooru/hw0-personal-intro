@@ -1,5 +1,5 @@
 **Name**
-I'm Rupa Pasunooru
+Rupa Pasunooru
 
 **MS or PhD**
 I'm pursuing my Master's degree and my major is Engineering Management
